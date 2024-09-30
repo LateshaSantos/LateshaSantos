@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @LateshaSantos
 - 👀 I’m interested in ... starting my own business
 - 🌱 I’m currently learning ... business management and entrepreneurship
-- 💞️ I’m looking to collaborate on ... buying house renovation and his/section 8 housing
+- 💞️ I’m looking to collaborate on ... buying house renovation and hud housing/section 8 housing i am also starting 3 other business as well 
 - 📫 How to reach me ... teshasantos1977@gmail.com
 
 <!---
